@@ -11,7 +11,7 @@ Some of the reasons this is one of my favorite series is how it **presents** its
 
 > Great animation
 
-> Intuiging mystery
+> Intruiging mystery
 
 > Meta storytelling through broadcasting episodes chronologically out of order, redoing episodes to emphasize a time loop(though this one is quite controversial)
 
